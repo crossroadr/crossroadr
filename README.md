@@ -11,5 +11,8 @@ all art by⠀⠀:⠀⠀@himejofish⠀⠀<a href="https://www.tumblr.com/himejofi
 jay⠀⠀/⠀⠀crossroader⠀⠀✦⠀⠀‿
 </p>
 <p align="center">
-theythem⠀⠀⠀⠀enfp⠀⠀⠀⠀9teen
+they⠀⠀/⠀⠀them⠀⠀⠀⠀enfp⠀⠀⠀⠀9teen
+</p>
+<p align="center">
+osdd⠀⠀⠀audhd⠀⠀⠀gad⠀⠀⠀mdd
 </p>
