@@ -1,5 +1,5 @@
 <p align="center">
-art by⠀⠀:⠀⠀@himejofish
+all art by⠀⠀:⠀⠀@himejofish⠀⠀<a href="https://www.tumblr.com/himejofish" target="_blank">(tumblr, </a> <a href="https://x.com/himejofish" target="_blank">twitter)</a>
 </p>
 
 <p align="center">
